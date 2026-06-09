@@ -1,4 +1,4 @@
-#  
+#  premium Scripts for oil empire offers the most advanced oil empire Script, with one-hit kill and silent aim. Perfect for dominating any match.
 
 
 
